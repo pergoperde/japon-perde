@@ -1,0 +1,2 @@
+# japon-perde
+Japon Perdeler tasarımlarında Uzak Doğu motiflerini barındıran klasik görünüme sahip perdelerdir. Opsiyonel olarak deri ya da kumaş üzerine nakışlar ile klasik bir atmosfer oluşturmak isteyenlerin tercihidir. Kumaş Japon Perdelerde tül metaryeli en sık tercih edilen üründür. Modern evler için de çözümler sunan Japon perde, kendinden desenli stor kumaşları ya da düz renk stor perde kumaşları ile ihtiyacınızı karşılar.  http://www.pergoperde.com.tr/#!japon-perde/
